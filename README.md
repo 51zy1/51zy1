@@ -6,14 +6,14 @@
 
 51资源网海外永久地址(需科学上网):  https://51zy1.com
 
-51资源网TG官方群: https://t.me/https_51zy1_com/3
+51资源网TG官方群: https://t.me/DF_51zy/4
 
 失联后如何获取最新地址：
 -
 方法1：邮箱发送任意邮件至 51资源网官方邮箱可获取最新地址
 牢记官方邮箱：cghl.fun@gmail.com
 
-方法2:加入 51资源网Telegram公告频道:https://t.me/https_51zy1_com/5
+方法2:加入 51资源网Telegram公告频道:https://t.me/DF_51zy/4
 
 常见问题：
 -
@@ -23,8 +23,7 @@
 
 2.请拷贝完整地址到浏览器访问，防止恶意劫持请带上 https://
 
-3.更换浏览器为Alook浏览器, edge浏览器, Chrome浏览器
+3.更换浏览器为Alook浏览器, edge浏览器, Chrome浏览器、Safari浏览器
 
-4.下载科学上网工具：蚂蚁加速器 https://859.djurjek.xyz/c-5016/a-brEXR  （禁止直接点击访问）请复制链接粘贴到浏览器
 
 请把网址或者QQ群分享给身边有需要的人 ，您的转发、分享是我们前进的动力😘～
