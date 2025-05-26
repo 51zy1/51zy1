@@ -4,6 +4,8 @@
 -
 51资源网国内最新地址：https://bt.pcopxjk.xyz
 
+51资源网国内最新入口：https://51zyw1.com/
+
 51资源网海外永久地址(需科学上网):  https://51zy1.com
 
 51资源网TG官方群: https://t.me/DF_51zy/4
